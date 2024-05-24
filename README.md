@@ -8,3 +8,8 @@ Meu nome é Guilherme De Oliveira!!!
 IG: @glzada.007
 
 FCK: Guilherme De Oliveira
+
+
+![](https://media1.tenor.com/m/2m6f6TiqUh8AAAAd/244.gif)
+
+
