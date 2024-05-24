@@ -4,6 +4,6 @@ Meu nome é Guilherme De Oliveira!!!
 - Estou me desenvolvendo na linguagem JavaScript;
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos.
 
-## Aonde podem me procurar?🥇📫
+## Aonde podem me encontrar?🥇📫
 IG: @glzada.007
 FCK: Guilherme De Oliveira
