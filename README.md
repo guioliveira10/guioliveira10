@@ -10,4 +10,5 @@ IG: @glzada.007
 FCK: Guilherme De Oliveira
 
 
-![](https://media1.tenor.com/m/2m6f6TiqUh8AAAAd/244.gif)
+![](https://media.tenor.com/-cQWzpkkqT0AAAAM/grau-moto.gif)
+
